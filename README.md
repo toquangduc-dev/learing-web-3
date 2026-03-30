@@ -10,3 +10,6 @@ t2 lam gi
 t3 lam hi
 mai lại làm bt
 dc nghỉ rùi
+fgmjngh ghn ghnm fgnghn gh
+ghn ghm gfhn ghng fg nghn
+fgn fgf fgnfgnfg
