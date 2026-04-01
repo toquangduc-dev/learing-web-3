@@ -13,3 +13,6 @@ dc nghỉ rùi
 fgmjngh ghn ghnm fgnghn gh
 ghn ghm gfhn ghng fg nghn
 fgn fgf fgnfgnfg
+fg fg fgb fg bfg fg 
+ghmghm  ghm ghm g g mghmgh gh mm
+gh mghm g ghm ghm ghm hj j
