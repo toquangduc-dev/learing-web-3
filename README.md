@@ -17,18 +17,9 @@ fg fg fgb fg bfg fg
 ghmghm  ghm ghm g g mghmgh gh mm
 gh mghm g ghm ghm ghm hj j
 asc sdacsadcds sddsvds
-vds
-dsv
-dsv
-dsv
-dvs
-
-dvs
-dsv
-vds
-dvs
-
-dvs
-dsv
-dsv
-dsv
+sdc dsc sdc sdc
+dcs sdc sdc sdc sd
+sd cds csdc sdc sdc sd
+sd csdc sdc sdc sdc sdcs dc
+sdcsd csdc sdcsd csdc sdcsdc 
+s dcsdcsdc sdc sdc sdc sdc
